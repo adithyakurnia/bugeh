@@ -1,0 +1,2 @@
+# bugeh
+Aku baru belajar
